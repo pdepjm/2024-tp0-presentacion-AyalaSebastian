@@ -5,7 +5,7 @@ ___
 ## legajo: 213.487-1
 
 - Vivo en Glew (zona sur)
-- Tengo 20 años este año a por los 21
+- Tengo 20 años este año los 21
 - Soy tecnico electronico 
 - Me gusta mucho el hardware de computadoras y las computadores en cuestion
 - Jugar al futbol y los videojuegos
